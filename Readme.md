@@ -13,8 +13,7 @@
 - IoT & Automation 🌍  
 
 ## 📫 Contact Me
-- ✉️ [Your Email Here]  
-- 🔗 [Your LinkedIn or Other Social Media Here]  
+- ✉️ halidvehibe@gmail.com
 
 ---
 
